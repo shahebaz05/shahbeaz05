@@ -36,7 +36,7 @@ Software Engineer at **Wipro Ltd.**, focused on backend and full-stack developme
 
 - https://www.linkedin.com/in/shahebaz-shaikh/
 - 📍 Pune, India
-- ✉️ skshahbaz05@gmail.com
+- ✉️ skshahbaz055@gmail.com
 
 ---
 
